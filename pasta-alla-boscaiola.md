@@ -15,4 +15,4 @@
 - 1/4 cup whipping cream
 - 1 cup freshly grated Parmesan cheese (about 3 ounces)
 - 2 tablespoons (1/4 stick) butter
-- Additional grated Parmesan cheese- 
+- Additional grated Parmesan cheese
