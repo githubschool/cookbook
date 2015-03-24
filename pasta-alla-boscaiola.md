@@ -11,7 +11,7 @@
 - 1 bay leaf
 - 1/3 cup dry Marsala
 - 1 pound fusilli pasta
-- 1 cup beef stock or canned beef broth
+- 1 cup vegetable stock
 - 1/4 cup whipping cream
 - 1 cup freshly grated Parmesan cheese (about 3 ounces)
 - 2 tablespoons (1/4 stick) butter
